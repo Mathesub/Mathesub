@@ -6,5 +6,3 @@
 ![.](https://media.tenor.com/ZuXnTDxIbjQAAAAC/shocked-shocked-cat.gif)
 
 ![.](https://media.tenor.com/9RsYHkzRE0EAAAAd/shock-shocker.gif)
-
-![.](https://media.tenor.com/ZuXnTDxIbjQAAAAC/shocked-shocked-cat.gif)
