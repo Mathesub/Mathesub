@@ -1,5 +1,5 @@
 -  Oi, sou @Mathesub
--  Estou interessado em música e coisas...
+-  Estou na turma 1ºA, nº32
 -  Estou atualmente aprendendo coisas na escola
 -  Como entrar em contato: matheus.subianski@escola.pr.gov.br
 
